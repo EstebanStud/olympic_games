@@ -1,0 +1,1 @@
+Voici le cahier des charges demandés en vue du rattrapage de la matière gestion de projets. Réalisés par Esteban Vidal
